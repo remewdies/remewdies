@@ -16,7 +16,7 @@ johnkat . . .
 
 
   ${\textsf{\color{#6e0202}𓏫 ུ  𝓓𝓞𝓥𝓔  𓏲ꪆ  𝓡𝓞𝓧𝓨 𝓮𝓽𝓬 . . .}}$ </br>
- ${\textsf{\color{#6e0202}ꞌꞋ 𓈒   ̣̣ ۟ ིྀ ͝ 𓏼 ㅤ ۶ৎ  ۪ ۪◜ ͡ ◟  }}$
+ ${\textsf{\color{#6e0202}ꞌꞋ 𓈒   ̣̣ ۟ ིྀ𓏼 ㅤ ۶ৎ  ۪ ۪◜ ͡ ◟  }}$
 
 
 <div align="center">
