@@ -24,11 +24,10 @@ johnkat . . .
 
 <sub>[CARRD](https://gampetapartytime.carrd.co/#) 
 [ROBLOX](https://www.roblox.com/users/10260535176/profile?friendshipSourceType=PlayerSearch) 
-[Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
-[Tumblr](https://www.tumblr.com/davestridersjuice)
+[SPOTIFY](https://open.spotify.com/user/31hwv5yqnkzhuug6s2nmnw67c2aq?si=cYIAwD7rSOasXTNiC0BZ8Q&nd=1&dlsi=d61828cb1ceb4290) 
 
-${\textsf{\color{#4957f4}ᵂᵃⁿᵗ ᵗᵒ ˢⁱᵍⁿ ᵐʸ}}$ <sub>[Ata](https://chickenbootyweezer.atabook.org/) ? ཻུ۪۪♡. </br>
-                              ${\textsf{\color{#4957f4}ᵐʸ}}$ <sub>[Rentry](https://rentry.co/so6qtif2)
+${\textsf{\color{#6e0202} ˢⁱᵍⁿ ᵐʸ}}$ <sub>[ATABOOK](https://chickenbootyweezer.atabook.org/](https://purrfect.atabook.org/?page=1) ? ཻུ۪۪♡. </br>
+                              ${\textsf{\color{#6e0202}ᵐʸ}}$ <sub>[STRAWPAGE](https://rentry.co/so6qtif2](https://dopeboydove.straw.page )
 
 </div>
 
