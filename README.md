@@ -31,4 +31,4 @@ ${\textsf{\color{#6e0202} ˢⁱᵍⁿ ᵐʸ}}$ <sub>[ATABOOK](https://chickenboo
 
 </div>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Davestridersjuice&color=a30000&style=plastic&label=Ghostwalkers)
+<img align="left" src="https://i.postimg.cc/Qdf17ZS0/IMG-4446.gif">
