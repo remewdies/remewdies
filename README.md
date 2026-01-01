@@ -1,9 +1,9 @@
 <details>
-<summary> <td>$${\color{#8897ff}\verb|≽^•⩊•^≼|}$$</td> </summary>
+<summary> <td>$${\color{#e00707}\verb|(:B|}$$</td> </summary>
 
 ᥲᥒᥒ :D
 
-<img width="423" height="381" alt="image" src="https://github.com/user-attachments/assets/89fc2f72-f5fe-411e-9b4b-e41e862011c5" />
+<img width="423" height="381" alt="image" src="https://i.postimg.cc/PfDJHnwR/IMG-4443.webp" />
 
 </details>
 
@@ -15,15 +15,15 @@
 
 
 
-𓏫 ུ   ${\textsf{\color{#4957f4}αƶυɾҽ/ƈʅαυɗια ҽƚƈ...}}$   ۪ ۪‿ྀ◜ ͡ ◟  </br>
-ꞌꞋ   𓈒   ̣̣ ۟ ིྀ ͝ 𓏼   text   ་།  /ҽɳʝιɳɠʅαƶҽɾ ㅤ  ${\textsf{\color{#a30000}ꨄ︎}}$
+𓏫 ུ   ${\textsf{\color{#4957f4}𝓓𝓞𝓥𝓔 𓏲ꪆ 𝓡𝓞𝓧𝓨 𝓮𝓽𝓬 . . .}}$   ۪ ۪‿ྀ◜ ͡ ◟  </br>
+ꞌꞋ   𓈒   ̣̣ ۟ ིྀ ͝ 𓏼 ㅤ  ${\textsf{\color{#a30000}ꨄ︎}}$
 
 
 <div align="center">
 
 
-<sub>[Pinterest](https://www.pinterest.com/Davestridersjuice/) 
-[Roblox](https://www.roblox.com/users/3939267694/profile) 
+<sub>[CARRD]([https://www.pinterest.com/Davestridersjuice/](https://gampetapartytime.carrd.co/#)) 
+[ROBLOX](https://www.roblox.com/users/3939267694/profile) 
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
