@@ -7,7 +7,7 @@
 
 </details>
 
-[![Templatesource](https://i.ibb.co/PZ5K9MmZ/tumblr-e84d916434fdab8cb82e60ad420d9127-2ad674a6-75.webp)](https://www.tumblr.com/verguletto/786853251858513920/may-the-peace-be-with-us-%E0%A9%AD-%F0%93%8F%BC%E3%85%A4) 
+[![Templatesource]([https://i.ibb.co/PZ5K9MmZ/tumblr-e84d916434fdab8cb82e60ad420d9127-2ad674a6-75.webp](https://i.postimg.cc/vTrNzZS7/image-2025-12-31-234310422.png))](https://www.tumblr.com/verguletto/786853251858513920/may-the-peace-be-with-us-%E0%A9%AD-%F0%93%8F%BC%E3%85%A4) 
  [![Templatesource](https://i.ibb.co/PZ5K9MmZ/tumblr-e84d916434fdab8cb82e60ad420d9127-2ad674a6-75.webp)](https://www.tumblr.com/icyporcelain/789380634980319232/shedletsky-telamon-graphics-all-made-by)
 
 <div align="center">
