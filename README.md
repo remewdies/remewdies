@@ -11,7 +11,7 @@
 
 <img align="left" src="https://i.postimg.cc/vTrNzZS7/image-2025-12-31-234310422.png">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=740000&center=true&width=750&lines=%C5%A6%C3%98%E2%B1%A4+%C5%82+%E2%82%B3%E2%82%A5+%E2%82%AE%C4%A6%C9%86+%E2%82%B4%C8%BB%C3%98%C9%84%E2%B1%A4%C7%A4%C9%86+%C3%98%C5%A6+%C9%86V%C9%86%E2%B1%A4%C9%8E%C3%98%E2%82%A6%C9%86+%E2%82%AE%C4%A6%E2%82%B3%E2%82%AE+%C9%8E%C3%98%C9%84+%C8%BB%E2%82%B3%E2%82%A6%E2%82%A6%C3%98%E2%82%AE+%C4%A6%C5%82%C6%89%C9%86.;CG:+I+HAD+S*X+WITH+YOUR+MOM+LOOSER.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=740000&center=true&width=750&lines=;CG:+I+HAD+S*X+WITH+YOUR+MOM+LOOSER.)](https://git.io/typing-svg)
 
 
 
