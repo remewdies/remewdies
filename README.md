@@ -26,8 +26,8 @@ johnkat . . .
 [ROBLOX](https://www.roblox.com/users/10260535176/profile?friendshipSourceType=PlayerSearch) 
 [SPOTIFY](https://open.spotify.com/user/31hwv5yqnkzhuug6s2nmnw67c2aq?si=cYIAwD7rSOasXTNiC0BZ8Q&nd=1&dlsi=d61828cb1ceb4290) 
 
-${\textsf{\color{#6e0202} ˢⁱᵍⁿ ᵐʸ}}$ <sub>[ATABOOK](https://chickenbootyweezer.atabook.org/](https://purrfect.atabook.org/?page=1 ) ? ཻུ۪۪♡. </br>
-                              ${\textsf{\color{#6e0202}ᵐʸ}}$ <sub>[STRAWPAGE](https://rentry.co/so6qtif2](https://dopeboydove.straw.page )
+${\textsf{\color{#6e0202} ˢⁱᵍⁿ ᵐʸ}}$ <sub>[ATABOOK](https://purrfect.atabook.org/?page=1 ) ? ཻུ۪۪♡. </br>
+                              ${\textsf{\color{#6e0202}ᵐʸ}}$ <sub>[STRAWPAGE](https://dopeboydove.straw.page )
 
 </div>
 
