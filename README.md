@@ -29,6 +29,8 @@ johnkat . . .
 ${\textsf{\color{#6e0202} ˢⁱᵍⁿ ᵐʸ}}$ <sub>[ATABOOK](https://chickenbootyweezer.atabook.org/](https://purrfect.atabook.org/?page=1 ) ? ཻུ۪۪♡. </br>
                               ${\textsf{\color{#6e0202}ᵐʸ}}$ <sub>[STRAWPAGE](https://rentry.co/so6qtif2](https://dopeboydove.straw.page )
 
-</div>
+<div align="center">
 
 <img align="left" src="https://i.postimg.cc/Qdf17ZS0/IMG-4446.gif">
+
+</div>
