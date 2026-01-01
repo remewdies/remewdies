@@ -1,7 +1,7 @@
 <details>
 <summary> <td>$${\color{#e00707}\verb|(:B|}$$</td> </summary>
 
-johndave . . .
+johnkat . . .
 
 <img width="423" height="381" alt="image" src="https://i.postimg.cc/PfDJHnwR/IMG-4443.webp" />
 
@@ -15,7 +15,7 @@ johndave . . .
 
 
 
-𓏫 ུ   ${\textsf{\color{#6e0202}𝓓𝓞𝓥𝓔 𓏲ꪆ 𝓡𝓞𝓧𝓨 𝓮𝓽𝓬 . . .}}$   ۪ ۪‿ྀ◜ ͡ ◟  </br>
+  ${\textsf{\color{#6e0202}𓏫 ུ  𝓓𝓞𝓥𝓔  𓏲ꪆ  𝓡𝓞𝓧𝓨 𝓮𝓽𝓬 . . .}}$   ۪ ۪‿ྀ◜ ͡ ◟  </br>
 ꞌꞋ   𓈒   ̣̣ ۟ ིྀ ͝ 𓏼 ㅤ  ${\textsf{\color{#6e0202}۶ৎ}}$
 
 
